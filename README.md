@@ -6,8 +6,4 @@ i dont rlly have a set dni; js dont be weird & we are ok!
 
 　　
 
-i do selfship and my sharing status does fluctuate
-
-　　
-
-u will see me usually on 18+ but sometimes i may be at safe
+[atabook](https://seis.atabook.org)　　　　　　[rentry](https://rentry.co/familiarity) 
